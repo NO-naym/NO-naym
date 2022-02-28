@@ -1,0 +1,2 @@
+- 👋 Hyy..it's me 'NO NAYM'
+- 👀 I’m interested in programming..!
