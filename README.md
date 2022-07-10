@@ -1,2 +1,4 @@
-- 👋 Hyy..it's me 'NO NAYM'
-- 👀 I’m interested in programming..!
+- Artist girly..
+- I’m interested in programming..!
+- Everyday learn something new..👀
+-
